@@ -29,6 +29,7 @@ I have taken an interest in Front-end web design ever since my second semester i
 
 # How to contact:
 Currently you can find me here on facebook (https://www.facebook.com/duykhang.tran.927980)
+
 More methods will be updated in the near future.
 
 # Job interest: 
